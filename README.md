@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Eka Nurul Falah
 
-NIM : 
+NIM : 607062400018
 
 ## Instruksi
 
